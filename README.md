@@ -15,3 +15,5 @@
 [>] AutoClicker Right - **1CPS - 20CPS**
 
 **[>] This client is free, if you paid for it ur dumb**
+
+**ONLY FOR LUNAR AND BADLION**
